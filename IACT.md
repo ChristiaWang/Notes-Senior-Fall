@@ -1,4 +1,8 @@
-# 典概w1-1
+# 古代典籍概要
+
+# Week 1-1 Sept. 13
+
+
 
 讲书籍装订制度
 
@@ -17,6 +21,20 @@
 
 
 ## 学习要求
+
+
+
+# Week 1-2 Sept. 16 
+
+Class skipped going back home
+
+
+
+# Week 2-1 Zhongqiu Vacation!
+
+
+
+# Week 2-2 Sept. 
 
 
 
