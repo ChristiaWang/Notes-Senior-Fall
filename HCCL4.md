@@ -633,3 +633,7 @@ jiangxingge和wangsanqiao，文學加工的痕跡很嚴重。「人工巧合」
 
 
 
+# Week 10 Nov. 16
+
+結束了小說部分，開始講戲曲。
+
